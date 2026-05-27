@@ -1,1 +1,1 @@
-# Proiect-Stiintele-Naturii-Clasa-a-3-a-E-2026
+# Proiect Stiintele Naturii Clasa a 3 a E 2026
